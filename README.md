@@ -1,0 +1,1 @@
+# Fonte energéticas poluidoras inscritas nos RAPP dos CNPJ até 2014
